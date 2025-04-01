@@ -1,1 +1,1 @@
-
+<div class="tenor-gif-embed" data-postid="18004804" data-share-method="host" data-aspect-ratio="1.77778" data-width="100%"><a href="https://tenor.com/view/bloody-stream-jojos-bizarre-adventure-jojo-battle-tendency-joseph-joestar-jojos-bizarre-adventure-bloody-stream-gif-18004804">Bloody Stream Jojos Bizarre Adventure GIF</a>from <a href="https://tenor.com/search/bloody+stream-gifs">Bloody Stream GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
